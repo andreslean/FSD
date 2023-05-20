@@ -6,3 +6,7 @@ Andrés y Maximiliano.
 ## Comienzo
 
 Agosto 2023. 
+
+## Finaliza
+
+Diciembre 2023.
